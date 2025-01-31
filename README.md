@@ -13,5 +13,8 @@ Usei o "ChatGPT" para escrever e revisar o roteiro do vídeo. O "D-ID" foi essen
 ## 🚀 Resultados
 O video mostra o potencial na criação de textos complexos, e a gama de opções diversificadas com o avatar virtual.
 
+Link do video - > https://studio.d-id.com/share?id=860e4e92ff43fcb1ae887171ad23f54c&utm_source=copy
+
+
 ## 💭 Reflexão (Opcional)
 Realmente surpreendente e desbravador.
